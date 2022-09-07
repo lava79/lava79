@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @lava79
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in ...SEO
+- 🌱 I’m currently learning ...SEO.
 - 📫 How to reach me ...<a href="https://lava79.com/tag/สล็อต/">luca79</a>
 
 <!---
